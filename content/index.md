@@ -2,5 +2,5 @@
 title: Welcome to Quartz
 ---
 
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
+[[Session 1 - 14-05-2026]]
+[[Session 2 - 23-05-2026]]
