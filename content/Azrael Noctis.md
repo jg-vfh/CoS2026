@@ -1,2 +1,3 @@
-![[Azrael face.png]]
+![[Azrael face.png|274]]
+
 Azrael is a 30 yr old tiefling with warm bronze skin undertone, golden eyes and black hair. 
