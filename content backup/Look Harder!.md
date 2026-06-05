@@ -1,0 +1,1 @@
+You haven't bothered to investigate what this item really is! It could be a bomb, or a sandwich!
