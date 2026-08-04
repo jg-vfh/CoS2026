@@ -1,0 +1,1 @@
+Sidgey encontró un libro que mencionaba este lugar. Hablaba de una guerra histórica pasada, entre dragones y caballeros contra un mal inimaginable. Esto coincide con rumores que escuchó Sidgey en una taverna de camino a estas tierras; quizás la facción de caballeros heroicos legendarios de la cual escuchó Sidgey sea la de la leyenda de Argynvostholt.
