@@ -1,0 +1,5 @@
+![[image - Bildrath.png|468]]
+
+Bildrath Cantemir is the owner of the town shop and tells a bit more of the story. After Doru organized a raid to attack "the devil" in Castle Ravenloft and failed, a dark skinned elf came to the village to proclaim that they would be punished. People were rushing to flee towards Vallaki but Ismark gave an "inspiring" speech and convinced many to stay and defend their village. Bildrath wanted to leave, but his sister Marta and her husband Dragomir decided to stay so he stayed too. Marta and Dragomir died in the undead attacks, and now Bildrath is responsible for his nephew Parriwimple. Bildrath is angry at Ismark and hopeless about the town's future.
+
+He is bitter and grumpy but has risen to the occasion in the worst of times, taking care of his nephew and helping defend the barricade despite not being a warrior.

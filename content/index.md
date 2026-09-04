@@ -1,11 +1,12 @@
 ---
-title: Curse of Strahd 2026 - A vulvilicious adventure
+title: Curse of Strahd 2026
 ---
 # Sessions
 - [[Session 01 - 14-05-2026]]
 - [[Session 02 - 23-05-2026]]
 - [[Session 03 - 07-06-2026]]
 - [[Session 04 - 02-08-2026]]
+- [[Session 05 - 22-08-2026]]
 
 # Our adventurers
 - [[Azrael Noctis|Azrael]]
@@ -17,10 +18,19 @@ title: Curse of Strahd 2026 - A vulvilicious adventure
 	- [[El diario privado de Sidgey]]
 
 # Places
+- [[Village of Barovia]]
+- [[Vallaki]]
 - [[Durst Manor]]
 - [[Willow Creek]]
 
 # People
+- [[Ismark Kolyanovich]]
+- [[Ireena]] Kolyana
+- [[Bildrath]] Cantemir
+- [[Parriwimple]]
+- [[Father Donavich]]
+- [[Doru]]
+- [[Rahadin]]
 - [[Rose and Thorn.png|Rosavalda and Thornboldt Durst]]
 - [[Igor Tratnov]]
 - [[Old Olga]]
