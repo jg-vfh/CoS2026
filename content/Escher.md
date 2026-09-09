@@ -1,0 +1,1 @@
+Doru's best friend and co-leader of the angry mob. Was also turned into vampire spawn after the failed attack.

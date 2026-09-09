@@ -1,0 +1,1 @@
+Father Donavich says this place was once a bastion of good, and may yet still offer some protection.

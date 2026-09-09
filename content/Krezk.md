@@ -1,0 +1,1 @@
+A town further west from Vallaki.

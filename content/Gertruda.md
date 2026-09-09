@@ -1,0 +1,1 @@
+Doru's betrothed, tried to go to Vallaki and was never seen again.

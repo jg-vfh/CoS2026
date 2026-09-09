@@ -7,6 +7,7 @@ title: Curse of Strahd 2026
 - [[Session 03 - 07-06-2026]]
 - [[Session 04 - 02-08-2026]]
 - [[Session 05 - 22-08-2026]]
+- [[Session 06 - 06-09-2026]]
 
 # Our adventurers
 - [[Azrael Noctis|Azrael]]

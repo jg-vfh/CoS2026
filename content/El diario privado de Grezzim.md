@@ -1,4 +1,4 @@
-# S#01 - 14-05-2026
+![[image - S06 - The black carriage.png]]# S#01 - 14-05-2026
 
 ## EL RELATO DE GREZZIM - EL COMIENZO DEL MIEDO EN AILLOK CREEK
 
@@ -202,3 +202,21 @@ Encontramos a Doru ahí. Convertido. En vampiro. Todos fuimos a verlo.
 No sé qué va a pasar ahora. No sé si esto es parte del plan del Señor o si esto es algo que se le escapó a él también. Probablemente sea mi imaginación pensar que se le puede escapar algo. Seguro que no. Seguro que todo esto tiene un propósito, y nosotros solo estamos ahí para verlo, para entenderlo, para no decepcionarlo.
 
 Froto mis manos. Mi cola se encoge. Mi sonrisa nerviosa permanece.
+
+# S#06 - 06-09-2026
+
+### PRIMER ENCUENTRO CON STRAHD
+Sidgey todavía tiembla. (Me paso un dedo por el borde del ojo, buscando algo que limpiar). Vio la muerte demasiado cerca, tan cerca que casi puedo oler el frío, y ahora aprieta con fuerza una espada nueva que probablemente no merecemos tener. 
+
+Maren se conmovió. Es una idea extraña, como si un cuervo decidiera que le importan las migajas de los mortales, pero ahí estaba, mirando a la gente del pueblo con algo parecido a la piedad. Azrael sigue en lo suyo, acumulando saberes oscuros y silenciosos en los rincones donde la luz no llega. Papa Legba se siente realizado. Ayudó a las almas perdidas de este lugar miserable, o al menos eso dice su sonrisa tranquila mientras yo sigo intentando que mis anillos baratos no suenen al chocar contra mis nudillos. 
+
+Me duele la cabeza. No logro entenderlo del todo. (Trago saliva, un nudo seco que no baja). El Señor, nuestro gran Strahd, está castigando con tanta dureza a la gente de este pueblo, y sin embargo... todos han sido tan amables conmigo. Me dan de comer, me miran sin asco. Seguro que hicieron algo malo. Tienen que haber hecho algo terrible para merecer este fuego, aunque mi mente se enrede tratando de justificarlo. No puedo permitir que el Señor se equivoque. Yo mismo salí corriendo con el amuleto del cura, directo hacia la sepultura del burgomaestre, con el corazón golpeándome las costillas como un animal encerrado.
+
+Nadie podía creerlo cuando Doro apareció con vida. El pobre cura estaba convencido de que eso que respiraba frente a nosotros ya no era su hijo, sino algún tipo de espía inmundo enviado por Strahd para burlarse de su dolor. Pero era él. Nos contó que estuvo preso en las entrañas del castillo, atrapado en la oscuridad, y que ahora es una de esas criaturas de la noche, un engendro hambriento. Nos habló de la tortura. Nos dijo, con una calma que me heló la sangre, que Strahd es malvado. Dice que fueron a enfrentarlo junto a su amigo Echter, un mago sabio y el mismísimo Van Richten con su mono, pero que todos cayeron masacrados salvo ellos dos. También mencionó algo peor. Dijo que vio a un lobo gigantesco cazando niños en la bruma. 
+
+Antes de despedirse, Doro nos rogó que encontráramos a Gertruda y nos advirtió que Vallaki es un nido de serpientes, aconsejándonos huir hacia la abadía de Krezk. En el camino, siguiendo sus indicaciones, encontramos un viejo tesoro que pertenecía al cazador Van Richten. Pero los caminos de este valle nunca están limpios. Nos cruzamos con Kenesa, que nos preguntó si habíamos visto a la familia Lanster. Unos pasos más adelante los encontramos. Ya no eran personas, eran solo carne podrida caminando bajo el sol gris. 
+
+Tuvimos que enterrarlos a todos para que dejaran de estorbar en el lodo. Apenas terminamos, retomamos la marcha. (Mis uñas sucias se clavan en la palma de la mano hasta hacerme daño). El suelo empezó a temblar bajo un peso conocido. Un carruaje negro, arrastrado por bestias tan oscuras como la medianoche, se detuvo frente a nosotros con un crujido seco. La portezuela se abrió y de ahí bajó una figura imponente. Esa tez de porcelana, la altura que impone respeto, la capa ondeando en la neblina y el brillo rojo sangre de ese broche. Es Él. El mismísimo Señor. Su mirada se posó directo en nosotros, y con esa voz que te congela los huesos, simplemente dijo "Hola, Lady Koliana", mirando fijamente a a Irinna. 
+
+
+![[image - S06 - The black carriage.png]]
